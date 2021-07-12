@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋⚔🔗🥗⚽♊
 
 <!--
 **phamhuy361995/phamhuy361995** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
